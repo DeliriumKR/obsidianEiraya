@@ -1,0 +1,1 @@
+Emerging from the haunted and ever-deadly Durst Manor, 
