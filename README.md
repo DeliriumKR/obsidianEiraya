@@ -1,2 +1,2 @@
 # obsidianEiraya
-Backup Repository for the Obsidian Vault: Eiraya, 
+Backup Repository for the Obsidian Vault: Eiraya - The Seven Thrones
