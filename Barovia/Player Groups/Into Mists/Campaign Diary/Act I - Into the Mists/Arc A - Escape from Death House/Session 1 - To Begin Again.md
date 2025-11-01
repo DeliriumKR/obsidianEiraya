@@ -1,0 +1,32 @@
+## DM Notes
+---
+
+## Player Feedback
+---
+### Sophie - Scarlet
+
+### Joao - Sir Gus Gus
+### George - Stumpfoot
+### Joanna - Valeria
+## Recap
+---
+As the rest of Greyhallow settled into stride in preparation of the Harvesttide festival, five wandering adventurers fatefully meet at the Wanking Goblin Inn, searching for a room.
+During their initial meeting, [[Sir Gus Gus]] sent two of his retainers, [[Meowth]] and [[James]] to search other places surrounding the town for places to rest, while communicating with the proprietor of the Wanking Goblin in his own pursuit to secure lodging.
+After a few drinks, they found themselves approached by a man named Arrigal, a Vistana traveller offering the group large amounts of coin in exchange for their help searching for his missing companion. Listening in on his offer, the party learnt that in recent days those left wandering the streets late at night tended to go missing, much like [[Meowth]] and [[James]] who had yet to return. Local rumours suggest that the disappearances line up with the appearance of a mysterious mansion at the edge of Greyhallow, which folks are now calling the "Death House."
+
+After agreeing to help Arrigal's cause, the group found themselves being whisked away towards the mysterious "Death House," their Barovian Relics reacting with its appearance as the darkened skies began to roil in a tumultuous thunderstorm.
+
+Upon arrival, the party found the doors unlocked, and made their way inside where a mysterious force trapped them inside to become the next prey of the Monster of the House.
+This same mysterious force warned them, that should they wish to survive, they would need to travel deeper into the core of the house below them, and satiate the Monster of the House before the stroke of Midnight. Should they fail, they would all perish before they every saw another sunrise.
+
+The group moved into the Hunter's Den, discovering the secrets within before heading into the Dining room. There they witnessed a slumbering [[Meowth]], satiated by the feast atop the table, dragged beneath the floorboards by a ghostly curled claw. From there, they made their way to the cloakroom, then the Kitchen, before ascending to the Second Floor.
+
+After entering the Upper Landing, the party explored the Servant's quarters, then the Library where they found a Note from the Durst Hand maiden, Klara, addressing the family with gratitude and secret door that remained closed.
+After making their way into the Conservatory, [[Stumpfoot]] made his Harpsichord debut, discovering secret Sheet Music for Waltz for Klara hidden between the strings of the instrument. When played, the party learnt of the tension between the house's ghostly occupants as the shimmering figures of old took to the dancefloor once more, a beautiful Hand Maiden assumed to be Klara dancing with Gustave Durst whilst Elizabeth Durst watched in fury.
+After this display, the secret door in the Library opened up, allowing the group to pass through and discover the secret behind, a letter addressed to Mrs Durst from a mysterious [[Strahd von Zarovich]].
+
+After some brief deliberation, the group made their way up to the third floor. Passing the landing, they began exploring the Nursemaid's suite, communicating with Klara, the nursemaid, and encountering the empty nursery that once housed the bastard son of Klara and Gustave Durst, Walter Durst.
+Returning to the balcony, a suit of Animate Armor attacked the group, trying to push [[Sir Gus Gus|Sir Gus]] off the balcony to the ground floor. With quick thinking and a swift flurry of blades, the group decapitated the Animated Armor, blood pumping with the stress of their first victory.
+## Next Session Intro
+---
+As the adrenaline slowly subsides in your system, the stage returns to you, and you find yourself in-character once more. 
